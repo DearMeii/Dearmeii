@@ -14,6 +14,10 @@
 
 ## ¡ＴＨＩＮＧＳ!
 
+```text
+Hello hello, call me either Meii/Dear
+```
+
 <br>
 
 <table align="center">
@@ -52,3 +56,10 @@
 </td>
 </tr>
 </table>
+
+---
+
+```text
+Thanks for coming.
+```
+---
