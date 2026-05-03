@@ -10,7 +10,11 @@
 
 </div>
 
+<div align="center"> 
+
 ## ¡ＴＨＩＮＧＳ!
+
+<br>
 
 <table align="center">
 <tr>
