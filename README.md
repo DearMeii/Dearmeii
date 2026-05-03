@@ -56,10 +56,13 @@ Hello hello, call me either Meii/Dear
 </td>
 </tr>
 </table>
+<br>
 
 ---
 
+![image alt](https://github.com/DearMeii/Dearmeii/blob/main/e731563d5cb378752259a2261f0ea92f.jpg?raw=true) 
+
 ```text
-Thanks for coming.
+Thank you for coming~
 ```
 ---
