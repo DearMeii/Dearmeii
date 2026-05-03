@@ -50,3 +50,5 @@
 </details>
 
 </td>
+</tr>
+</table>
