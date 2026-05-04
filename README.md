@@ -60,6 +60,8 @@ Hello hello, call me either Meii/Dear
 
 ---
 
+[ [straw](https://dearmeii1.straw.page/) | [atabook](https://dearmeii.atabook.org/) | [insta 4 arts <3](https://www.instagram.com/dearmeii1/) ]
+
 ![image alt](https://github.com/DearMeii/Dearmeii/blob/main/e731563d5cb378752259a2261f0ea92f.jpg?raw=true) 
 
 ```text
