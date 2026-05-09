@@ -27,31 +27,31 @@ Hello hello, call me either Meii/Dear
 
 
 <details>
-<summary>𓏲ּ𝄢 <b>​🇧​​🇪​​🇫​​🇴​​🇷​​🇪​ ​🇾​​🇴​​🇺​ ​🇮​​🇳​​🇹​​🇪​​🇷​​🇦​​🇨​​🇹​</b></summary>
-​(🇩​​🇪​​🇦​​🇷​ ​🇬​​🇴​​🇩​ ​🇹​​🇭​​🇮​​🇸​ ​🇮​​🇸​ ​🇦​ ​🇱​​🇴​​🇳​​🇬​ ​🇱​​🇮​​🇸​​🇹​, ​🇴​​🇴​​🇵​​🇸​)
-
-- ɪ ᴀᴍ ʟᴇɢᴀʟʟʏ ᴀɴ ᴀᴅᴜʟᴛ, ꜱᴏ ᴘʟᴇᴀꜱᴇ ᴛʀᴇᴀᴛ ᴍᴇ ʟɪᴋᴇ ꜱᴜᴄʜ
-- ᴄ+ʜ ᴀɴᴅ ɪɴᴛ ᴀʀᴇ ᴇɴᴄᴏᴜʀᴀɢᴇᴅ ᴇᴠᴇɴ ɪꜰ ɪ ᴅᴏɴ'ᴛ ʜᴀᴠᴇ ᴛʜᴇᴍ ᴅɪꜱᴘʟᴀʏᴇᴅ (ᴜɴʟᴇꜱꜱ ꜱᴀɪᴅ ᴏᴛʜᴇʀᴡɪꜱᴇ)
-- ɪ ᴀᴍ ꜱᴀʀᴄᴀꜱᴛɪᴄ ᴍᴏꜱᴛ ᴏꜰ ᴛʜᴇ ᴛɪᴍᴇ, ᴜɴʟᴇꜱꜱ ɪᴛ'ꜱ ᴀ ꜱᴇʀɪᴏᴜꜱ ᴛᴏᴘɪᴄ. ɪꜰ ɪ ʜᴀᴅ ꜱᴀɪᴅ ꜱᴏᴍᴇᴛʜɪɴɢ ᴜᴘꜱᴇᴛᴛɪɴɢ ᴘʟᴇᴀꜱᴇ ᴛᴇʟʟ ᴍᴇ!
-- ᴀ ꜱᴏᴄɪᴀʟʟʏ ᴀᴡᴋᴡᴀʀᴅ ᴀɴᴅ ᴀɴxɪᴏᴜꜱ ᴘᴇʀꜱᴏɴ, ᴍɪɢʜᴛ ᴏᴠᴇʀᴛʜɪɴᴋ ᴛʜɪɴɢꜱ ᴇᴀꜱɪʟʏ
-- ᴏꜰꜰᴛᴀʙ ꜰᴏʀ ᴍᴏꜱᴛ ᴏꜰ ᴛʜᴇ ᴛɪᴍᴇ. ᴘʟꜱꜱ ᴡʜɪꜱᴘ ᴛᴏ ɪɴᴛ, ᴏᴛʜᴇʀᴡɪꜱᴇ ɪ ᴡᴏɴ'ᴛ ʀᴇꜱᴘᴏɴᴅ
-- ɪ ᴀᴍ ꜰɪɴᴇ ᴡɪᴛʜ ᴘᴇᴏᴘʟᴇ ꜱɪᴛᴛɪɴɢ ᴡɪᴛʜ ᴍᴇ ᴀꜱ ᴀ ꜱʜɪᴘ ᴀꜱ ɪ ʜᴀᴅ ꜱᴛᴀᴛᴇᴅ ᴛʜᴀᴛ ɪ ᴀᴍ ᴍᴜʟᴛɪꜱʜɪᴘᴘᴇʀ ᴀɴᴅ ꜰɪɴᴇ ᴡɪᴛʜ ᴀɴʏ ꜱʜɪᴘꜱ, ᴛʜᴏᴜɢʜ ᴘʟᴇᴀꜱᴇ ᴅᴏɴ'ᴛ ʙᴇ ᴡᴇɪʀᴅ ᴡɪᴛʜ ᴛʜᴇ ꜱʜɪᴘ
+<summary>𓏲ּ𝄢 <b>​ＢＥＦＯＲＥ ＹＯＵ ＩＮＴＥＲＡＣＴ​</b></summary>
+​(Dear god this is a long list, oops!)
+  
+- I am legally an adult, so please treat me like such
+- C+H and int are heavily encouraged even if i don't have them displayed on name (unless said otherwise)
+- I am sarcastic for most of the time, unless it's a serious topic. if i had said something upsetting please do tell me!
+- A socially awkward and anxious person, might overthink things easily (i try to not to)
+- Offtab for most of the time, please whisper me to interact, otherwise i won't respond
+- I am fine with people sitting with me as a ship as i had stated that i am a multishipper and generally fine with any ships. Though please don't be weird with the ship (also whisper me if you are sitting as a ship)
  </details>
 
 <details>
-<summary>𓏲ּ𝄢 <b>​🇮​​🇼​​🇨​</b></summary>
+<summary>𓏲ּ𝄢 <b>ＩＷＣ</b></summary>
   
-- ᴘᴘʟ ᴡʜᴏ ᴏᴠᴇʀʟʏ ᴠᴇɴᴛꜱ. ɪ ᴀᴍ ꜰɪɴᴇ ᴡɪᴛʜ ʏᴏᴜ ᴠᴇɴᴛɪɴɢ ᴛᴏ ᴍᴇ, ᴊᴜꜱᴛ ᴘʟᴇᴀꜱᴇ ᴅᴏɴ'ᴛ ᴅᴏ ɪᴛ ᴛᴏᴏ ᴏꜰᴛᴇɴ
-- ꜱᴇɴꜱɪᴛɪᴠᴇ ᴛᴏᴘɪᴄꜱ (ᴇ.ɢ. ᴘᴏʟɪᴛɪᴄꜱ, ʀᴇʟɪɢɪᴏɴꜱ, ʜᴇᴀʟᴛʜ, ᴇᴛᴄ)
+- Ppl who overly vents. i am fine with you venting to me, though please don't do it too often 
+- Sensitive topics (e.g. politics, religion, etc)
 </details>
 
 <details>
-<summary>𓏲ּ𝄢 <b>🇩​​🇳​​🇮</b></summary>
+<summary>𓏲ּ𝄢 <b>ＤＮＩ</b></summary>
 
-- ʙᴀꜱɪᴄ ᴅɴɪ ᴄʀɪᴛᴇʀɪᴀ (ᴇ.ɢ. ʜᴏᴍᴏ/ᴛʀᴀɴꜱᴘʜᴏʙᴇꜱ, ʀᴀᴄɪꜱᴛꜱ, ᴇᴛᴄ)
-- ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴀʀᴇ ᴀꜱꜱʜᴏʟᴇꜱ ɪɴ ɢᴇʀᴇʀᴀʟ
-- ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴊᴜꜱᴛ ʜᴀᴛᴇꜱ ᴏɴ ᴏᴛʜᴇʀ ᴘᴇᴏᴘʟᴇ'ꜱ ᴏᴘɪɴɪᴏɴ ᴡɪᴛʜᴏᴜᴛ ᴀɴʏ ʀᴇᴀꜱᴏɴ (ᴇꜱᴘᴇᴄɪᴀʟʟʏ ᴏɴ ꜱʜɪᴘꜱ)
-- ᴜɴɴᴇᴄᴇꜱꜱᴀʀʏ ʜᴀᴛᴇ ꜱᴘᴇᴀᴄʜ
+- Basic DNI Criteria (e.g. homo/transphobes, racists, rtc)
+- People who are assholes in general
+- People who just hates on other's opinions without any reasons (especially on ships)
+- Unnecessary hate speech
 </details>
 
 </td>
