@@ -44,6 +44,7 @@ Hello hello, call me either Meii/Dear
   
 - Ppl who overly vents. i am fine with you venting to me, though please don't do it too often 
 - Sensitive topics (e.g. politics, religion, etc)
+- <12 yo
 </details>
 
 <details>
