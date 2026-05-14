@@ -87,7 +87,7 @@ Hello hello, call me either Meii/Dear
 (take note on "PERSONALLY")
 
 - CRK = Affocara, Carachoco, Arrowraisin, Caramozza, Purelily, Truthlesssage, Shadowvanilla, Purecacao, Mysticcacao, BurningCacao, Silentlily, Goldenlily, Elderlily, Sugarlova, Croisstring, Marblestring, Hollysugar, Espresseleine, Firewind, Blackbell, Silentfaerie, Seamoon, Wildchip
-- Genshin = Aexiao/Xiaother, Chilumi, Kazumiya, Kazutomo, Kazuhei, Beiguang, Wriolette/Neuviwrio, Kavetham/Haikaveh, Eimiko
+- Genshin = Aexiao/Xiaother, Chilumi, Kazumiya, Kazutomo, Kazuhei, Beiguang, Wriolette/Neuviwrio, Kavetham/Haikaveh, Eimiko, Varflins, Lohelia
 - ZZZ = Lighterwise, Wiseharu/Haruwise, Vivibelle
 - ROTMHS = TangChung, ChungBaek
 
