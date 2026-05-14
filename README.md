@@ -14,6 +14,8 @@
 
 ## ¡ＴＨＩＮＧＳ!
 
+<br>
+
 ```text
 Hello hello, call me either Meii/Dear
 ```
@@ -36,7 +38,7 @@ Hello hello, call me either Meii/Dear
 - A socially awkward and anxious person, might overthink things easily (i try to not to)
 - Offtab for most of the time, please whisper me to interact, otherwise i won't respond
 - I am fine with people sitting with me as a ship as i had stated that i am a multishipper and generally fine with any ships. Though please don't be weird with the ship (also whisper me if you are sitting as a ship)
-- I don't care if you cover me, though if i am seen sitting with my friends then please don't cover
+- I don't care if you cover me, unless i am seen sitting with my friends then please don't cover me and my friends
  </details>
 
 <details>
@@ -64,7 +66,9 @@ Hello hello, call me either Meii/Dear
 
 <div align="center">
 
-## ＯＴＨＥＲ ＴＨＩＮＧＳ
+## ¡ＯＴＨＥＲ ＴＨＩＮＧＳ!
+
+<br>
 
 <table align="center">
 <tr>
@@ -82,7 +86,7 @@ Hello hello, call me either Meii/Dear
 <summary>𓏲ּ𝄢 <b>ＳＨＩＰＳ Ｉ ＰＥＲＳＯＮＡＬＬＹ ＬＩＫＥ</b></summary>
 (take note on "PERSONALLY")
 
-- CRK = Affocara, Carachoco, Arrowraisin, Purelily, Truthlesssage, Shadowvanilla, Purecacao, Mysticcacao, BurningCacao, Silentlily, Goldenlily, Elderlily, Sugarlova, Croissting, Marblestring, Hollysugar, Espresseleine, Firewind, Blackbell, Silentfaerie, Seamoon, Wildchip
+- CRK = Affocara, Carachoco, Arrowraisin, Purelily, Truthlesssage, Shadowvanilla, Purecacao, Mysticcacao, BurningCacao, Silentlily, Goldenlily, Elderlily, Sugarlova, Croisstring, Marblestring, Hollysugar, Espresseleine, Firewind, Blackbell, Silentfaerie, Seamoon, Wildchip
 - Genshin = Aexiao/Xiaother, Chilumi, Kazumiya, Kazutomo, Kazuhei, Beiguang, Wriolette/Neuviwrio, Kavetham/Haikaveh, Eimiko
 - ZZZ = Lighterwise, Wiseharu/Haruwise, Vivibelle
 - ROTMHS = TangChung, ChungBaek
