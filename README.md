@@ -54,6 +54,40 @@ Hello hello, call me either Meii/Dear
 - People who are assholes in general
 - People who just hates on other's opinions without any reasons (especially on ships)
 - Unnecessary hate speech
+- People who bully others for their ships (i may not like some ships, i don't care if you ship that i dislike. you are still free to interract) 
+</details>
+
+</td>
+</tr>
+</table>
+<br>
+
+<div align="center">
+
+## ＯＴＨＥＲ ＴＨＩＮＧＳ
+
+<table align="center">
+<tr>
+<td align="left" style="border: none;">
+
+<details>
+<summary>𓏲ּ𝄢 <b>ＭＹ ＩＮＴＥＲＥＳＴＳ</b></summary>
+
+- Ｆａｎｄｏｍｓ = Hermitcraft, Life series, Crk, Crob, Fnaf, Gachiakuta, Pjsk, Vocaloid, Genshin Impact, ZZZ, ROTMHS
+- Ｍｕｓｉｃ = Will Wood, The Crane Wives, NILFRUITS, Fish in a Birdcage, .Feast, Hindia
+- Ｈｏｂｂｉｅｓ = Drawing, reading, music, art
+</details>
+
+<details>
+<summary>𓏲ּ𝄢 <b>ＳＨＩＰＳ Ｉ ＰＥＲＳＯＮＡＬＬＹ ＬＩＫＥ</b></summary>
+(take note on "PERSONALLY")
+
+- CRK = Affocara, Carachoco, Arrowraisin, Purelily, Truthlesssage, Shadowvanilla, Purecacao, Mysticcacao, BurningCacao, Silentlily, Goldenlily, Elderlily, Sugarlova, Croissting, Marblestring, Hollysugar, Espresseleine, Firewind, Blackbell, Silentfaerie, Seamoon, Wildchip
+- Genshin = Aexiao/Xiaother, Chilumi, Kazumiya, Kazutomo, Kazuhei, Beiguang, Wriolette/Neuviwrio, Kavetham/Haikaveh, Eimiko
+- ZZZ = Lighterwise, Wiseharu/Haruwise, Vivibelle
+- ROTMHS = TangChung, ChungBaek
+
+I'll add more later
 </details>
 
 </td>
