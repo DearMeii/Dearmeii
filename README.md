@@ -39,6 +39,7 @@ Hello hello, call me either Meii/Dear
 - Offtab for most of the time, please whisper me to interact, otherwise i won't respond
 - I am fine with people sitting with me as a ship as i had stated that i am a multishipper and generally fine with any ships. Though please don't be weird with the ship (also whisper me if you are sitting as a ship)
 - I don't care if you cover me, unless i am seen sitting with my friends then please don't cover me and my friends
+- I hide and block freely
  </details>
 
 <details>
