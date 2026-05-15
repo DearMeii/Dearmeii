@@ -57,7 +57,8 @@ Hello hello, call me either Meii/Dear
 - People who are assholes in general
 - People who just hates on other's opinions without any reasons (especially on ships)
 - Unnecessary hate speech
-- People who bully others for their ships (i may not like some ships, i don't care if you ship that i dislike. you are still free to interract) 
+- People who bully others for their ships (i may not like some ships, i don't care if you ship that i dislike. you are still free to interract)
+- People who purposely make others uncomfortable. easy way to get blocked
 </details>
 
 </td>
