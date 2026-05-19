@@ -53,7 +53,7 @@ Hello hello, call me either Meii/Dear
 <details>
 <summary>𓏲ּ𝄢 <b>ＤＮＩ</b></summary>
 
-- Basic DNI Criteria (e.g. homo/transphobes, racists, rtc)
+- Basic DNI Criteria (e.g. homo/transphobes, racists, etc)
 - People who are assholes in general
 - People who just hates on other's opinions without any reasons (especially on ships)
 - Unnecessary hate speech
