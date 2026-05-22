@@ -79,7 +79,7 @@ Hello hello, call me either Meii/Dear
 <details>
 <summary>𓏲ּ𝄢 <b>ＭＹ ＩＮＴＥＲＥＳＴＳ</b></summary>
 
-- Ｆａｎｄｏｍｓ = Hermitcraft, Life series, Crk, Crob, Fnaf, Gachiakuta, Pjsk, Vocaloid, Genshin Impact, ZZZ, ROTMHS
+- Ｆａｎｄｏｍｓ = Hermitcraft, Life series, Crk, Crob, Fnaf, Gachiakuta, Pjsk, Vocaloid, Genshin Impact, ZZZ, ROTMHS, Sky:cotl 
 - Ｍｕｓｉｃ = Will Wood, The Crane Wives, NILFRUITS, Fish in a Birdcage, .Feast, Hindia
 - Ｈｏｂｂｉｅｓ = Drawing, reading, music, art
 </details>
