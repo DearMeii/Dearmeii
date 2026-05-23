@@ -59,6 +59,7 @@ Hello hello, call me either Meii/Dear
 - Unnecessary hate speech
 - People who bully others for their ships (i may not like some ships, i don't care if you ship that i dislike. you are still free to interract)
 - People who purposely make others uncomfortable. easy way to get blocked
+- uncredited tut skins
 </details>
 
 </td>
