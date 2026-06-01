@@ -90,7 +90,7 @@ Hello hello, call me either Meii/Dear
 <summary>𓏲ּ𝄢 <b>ＳＨＩＰＳ Ｉ ＰＥＲＳＯＮＡＬＬＹ ＬＩＫＥ</b></summary>
 (take note on "PERSONALLY")
 
-- CRK = Affocara, Carachoco, Arrowraisin, Caramozza, Purelily, Truthlesssage, Purecacao, Mysticcacao, BurningCacao, Silentlily, Goldenlily, Elderlily, Sugarlova, Espresseleine, Firewind, Blackbell, Silentfaerie, Wildchip
+- CRK = Affocara, Carachoco, Arrowraisin, Caramozza, Purelily, Purecacao, Mysticcacao, BurningCacao, Silentlily, Goldenlily, Elderlily, Sugarlova, Espresseleine, Firewind, Blackbell, Silentfaerie, Wildchip
 - Genshin = Aexiao/Xiaother, Chilumi, Kazumiya, Kazutomo, Kazuhei, Beiguang, Wriolette/Neuviwrio, Kavetham/Haikaveh, Eimiko, Varflins, Lohelia
 - ZZZ = Lighterwise, Wiseharu/Haruwise, Vivibelle
 - ROTMHS = TangChung, ChungBaek
