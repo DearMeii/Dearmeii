@@ -42,13 +42,14 @@ Hello hello, call me either Meii/Dear
 - I don't care if you cover me, unless i am seen sitting with my friends then please don't cover me and my friends
 - I hide and block freely
 - my mood swings quite fast, very sorry abt that
+- I joke about my country's politics sometimes
  </details>
 
 <details>
 <summary>𓏲ּ𝄢 <b>ＩＷＣ</b></summary>
   
 - Ppl who overly vents. i am fine with you venting to me, though please don't do it too often 
-- Sensitive topics (e.g. politics, religion, etc)
+- Sensitive topics
 - <16 yo
 </details>
 
@@ -61,9 +62,10 @@ Hello hello, call me either Meii/Dear
 - Unnecessary hate speech
 - People who bully others for their ships (i may not like some ships, i don't care if you ship that i dislike. you are still free to interract)
 - People who purposely make others uncomfortable. easy way to get blocked
+- People who forces their believe on others
 - uncredited tut skins
 - Trump and ICE supporters
-- Prabowo supporters (if ur indonesian) 
+- (for indonesiand) PRABOWO GLAZERS AND SUPPORTERS BACKOFF DNIDNIDNI I FUCKING HATE HIM AND Y'ALL WITH A PASSION
 </details>
 
 </td>
