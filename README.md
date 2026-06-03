@@ -55,13 +55,15 @@ Hello hello, call me either Meii/Dear
 <details>
 <summary>𓏲ּ𝄢 <b>ＤＮＩ</b></summary>
 
-- Basic DNI Criteria (e.g. homo/transphobes, racists, etc)
+- Basic DNI Criteria (e.g. homo/transphobes, racists, Zionists, etc)
 - People who are assholes in general
 - People who just hates on other's opinions without any reasons (especially on ships)
 - Unnecessary hate speech
 - People who bully others for their ships (i may not like some ships, i don't care if you ship that i dislike. you are still free to interract)
 - People who purposely make others uncomfortable. easy way to get blocked
 - uncredited tut skins
+- Trump and ICE supporters
+- Prabowo supporters (if ur indonesian) 
 </details>
 
 </td>
