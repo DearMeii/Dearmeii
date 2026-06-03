@@ -65,7 +65,7 @@ Hello hello, call me either Meii/Dear
 - People who forces their believe on others
 - uncredited tut skins
 - Trump and ICE supporters
-- (for indonesiand) PRABOWO GLAZERS AND SUPPORTERS BACKOFF DNIDNIDNI I FUCKING HATE HIM AND Y'ALL WITH A PASSION
+- (for indonesians) PRABOWO GLAZERS AND SUPPORTERS BACKOFF DNIDNIDNI I FUCKING HATE HIM AND Y'ALL WITH A PASSION
 </details>
 
 </td>
