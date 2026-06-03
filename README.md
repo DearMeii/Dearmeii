@@ -33,6 +33,7 @@ Hello hello, call me either Meii/Dear
 ​(Dear god this is a long list, oops!)
   
 - I am legally an adult, so please treat me like such
+- i am generally fine with any pronouns, though i use they them more prefferably :]
 - C+H and int are heavily encouraged even if i don't have them displayed on name (unless said otherwise)
 - I am sarcastic for most of the time, unless it's a serious topic. if i had said something upsetting please do tell me!
 - A socially awkward and anxious person, might overthink things easily (i try to not to)
