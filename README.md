@@ -91,8 +91,6 @@ Hello hello, call me either Meii/Dear
 - Ｈｏｂｂｉｅｓ = Drawing, reading, music, art
 </details>
 
-<details>
-
 </td>
 </tr>
 </table>
