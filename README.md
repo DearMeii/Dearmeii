@@ -62,6 +62,7 @@ Hello hello, call me either Meii/Dear
 - People who purposely make others uncomfortable. easy way to get blocked
 - People who forces their believes on others
 - uncredited tut skins
+- ageplayers HEAVY dni
 - Trump and ICE supporters
 - (for indonesians) PRABOWO GIBRAN GLAZERS AND SUPPORTERS BACKOFF DNIDNIDNI I FUCKING HATE THEM AND Y'ALL WITH A PASSION
 </details>
