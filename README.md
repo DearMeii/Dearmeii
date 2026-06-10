@@ -103,7 +103,7 @@ Hello hello, call me either Meii/Dear
 
 <div align="center"> 
 
- ​#¹🍨🧋​🇫​​🇦​​🇳
+
 
 ```text
 Thank you for coming~
