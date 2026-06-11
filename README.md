@@ -45,14 +45,6 @@ Hello hello, call me either Meii/Dear
  </details>
 
 <details>
-<summary>𓏲ּ𝄢 <b>ＩＷＣ</b></summary>
-  
-- Ppl who overly vents. i am fine with you venting to me, though please don't do it too often 
-- Sensitive topics
-- <16 yo
-</details>
-
-<details>
 <summary>𓏲ּ𝄢 <b>ＤＮＩ</b></summary>
 
 - Basic DNI Criteria (e.g. homo/transphobes, racists, Zionists, etc)
