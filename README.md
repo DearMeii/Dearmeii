@@ -47,7 +47,7 @@ Hello hello, call me either Meii/Dear
 <details>
 <summary>𓏲ּ𝄢 <b>ＤＮＩ</b></summary>
 
-- Basic DNI Criteria (e.g. homo/transphobes, racists, Zionists, etc)
+- Basic DNI Criteria (e.g. homo/transphobes, racists, Zionists, nazis, etc)
 - People who are assholes in general
 - Unnecessary hate speech
 - People who bully others for their ships
