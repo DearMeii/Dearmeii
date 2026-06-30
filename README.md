@@ -33,14 +33,14 @@ Hello hello, call me either Meii/Dear
 ​(Dear god this is a long list, oops!)
   
 - I am legally an adult, so please treat me like such
-- i am generally fine with any pronouns, though i use they/them more prefferably :]
-- C+H and int are heavily encouraged even if i don't have them displayed on name (unless said otherwise)
+- Any pronouns!! though i use they/them more prefferably
+- C+H and int are heavily encouraged even if i don't have them displayed on name unless said otherwise (guys i don't bite please 🥹)
 - I am sarcastic for most of the time, unless it's a serious topic. if i had said something upsetting please do tell me!
-- A socially awkward and anxious person, might overthink things easily (i try to not to)
+- A socially awkward and anxious person, might overthink things easily
 - Offtab for most of the time, please whisper me to interact, otherwise i won't respond
 - I am fine with people sitting with me as a ship as i had stated that i am a multishipper and generally fine with any ships.
 - I don't care if you cover me, unless i am seen sitting with my friends then please don't cover me and my friends
-- I hide and block freely
+- I hide and block freely though i do that rarely
 - my mood swings quite fast, very sorry abt that
  </details>
 
