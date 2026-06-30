@@ -24,7 +24,7 @@ Hello hello, call me either Meii/Dear
 
 <div align="center"> 
 
-
+ᴅɪᴅ ʏᴏᴜ ᴋɴᴏᴡ ᴛʜᴀᴛ ɪ ʟᴏᴠᴇ ᴄᴀʀʀᴏᴡ ꜱᴏ ᴍᴜᴄʜ ?
 
 ```text
 Thank you for coming~
