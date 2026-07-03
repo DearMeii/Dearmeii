@@ -24,7 +24,7 @@ Hello hello, call me either Meii/Dear
 
 <div align="center"> 
 
-ᴅɪᴅ ʏᴏᴜ ᴋɴᴏᴡ ᴛʜᴀᴛ ɪ ʟᴏᴠᴇ ᴄᴀʀʀᴏᴡ ꜱᴏ ᴍᴜᴄʜ ?
+a stressed, tired, and broke college student
 
 ```text
 Thank you for coming~
