@@ -24,7 +24,7 @@ Hello hello, call me either Meii/Dear
 
 <div align="center"> 
 
-a stressed, tired, and broke college student
+a stressed, tired, sleep deprived, and broke college student
 
 ```text
 Thank you for coming~
