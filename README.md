@@ -18,13 +18,13 @@ Hello hello, call me either Meii/Dear
 
 ---
 
-[ [straw](https://dearmeiii.straw.page) | [atabook](https://dearmeii.atabook.org/) | [insta 4 arts <3](https://www.instagram.com/dearmeii1/) ]
+[ [straw](https://dearmei11.straw.page) | [atabook](https://dearmeii.atabook.org/) | [insta 4 arts <3](https://www.instagram.com/dearmeii1/) ]
 
 ![image alt](https://github.com/DearMeii/Dearmeii/blob/main/e731563d5cb378752259a2261f0ea92f.jpg?raw=true) 
 
 <div align="center"> 
 
-a stressed, tired, sleep deprived, and broke college student
+tired 24/7, please bear with me.
 
 ```text
 Thank you for coming~
