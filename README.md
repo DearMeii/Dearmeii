@@ -19,8 +19,6 @@ Sign my sp & ata!
 
 <div align="center"> 
 
-<br>
-
 ᴛɪʀᴇᴅ 𝟤𝟦/𝟩, ᴘʟᴇᴀꜱᴇ ʙᴇᴀʀ ᴡɪᴛʜ ᴍᴇ.
 
 <br>
