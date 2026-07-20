@@ -15,7 +15,10 @@
 ᴍᴏꜱᴛ ʟɪᴋᴇʟʏ ᴏꜰꜰᴛᴀʙ ᴏʀ ᴀꜰᴋ, ᴡ𝟤ɪ ᴘʀᴇꜰꜰᴇʀᴇᴅ!
 
 <details>
-<summary></summary>
+<summary>!!</summary>
+  <br>
+<div align="center">
+  
 oomfies!
 <div align="center">
   
