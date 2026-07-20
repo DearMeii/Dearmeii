@@ -22,6 +22,8 @@
 oomfies!
 <div align="center">
   
-[Emery](https://github.com/timekeeps) ⚚ [Quaso](https://github.com/Quaso0) ⚚ [Mia](https://github.com/vloggun) ⚚ [Arson](https://github.com/arsonbringer) ⚚ [Azure](https://github.com/thestarsarewatching) ⚚ [Taffy](https://github.com/LaffyTaffy-0)
+-[ᴇᴍᴇʀʏ](https://github.com/timekeeps) ⚚ [ǫᴜᴀꜱᴏ](https://github.com/Quaso0) ⚚ [ᴍɪᴀ](https://github.com/vloggun) ⚚ [ᴀʀꜱᴏɴ](https://github.com/arsonbringer) ⚚ [ᴀᴢᴜʀᴇ](https://github.com/thestarsarewatching) ⚚ [ᴛᴀꜰꜰʏ](https://github.com/LaffyTaffy-0)-
+
+</details>
 
 <br>
