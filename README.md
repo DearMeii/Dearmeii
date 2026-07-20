@@ -14,4 +14,11 @@
 
 ᴍᴏꜱᴛ ʟɪᴋᴇʟʏ ᴏꜰꜰᴛᴀʙ ᴏʀ ᴀꜰᴋ, ᴡ𝟤ɪ ᴘʀᴇꜰꜰᴇʀᴇᴅ!
 
+<details>
+<summary></summary>
+oomfies!
+<div align="center">
+  
+[Emery](https://github.com/timekeeps) ⚚ [Quaso](https://github.com/Quaso0) ⚚ [Mia](https://github.com/vloggun) ⚚ [Arson](https://github.com/arsonbringer) ⚚ [Azure](https://github.com/thestarsarewatching) ⚚ [Taffy](https://github.com/LaffyTaffy-0)
+
 <br>
