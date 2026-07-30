@@ -19,7 +19,7 @@
   <br>
 <div align="center">
   
-oomfies!
+ʟᴏᴠᴇʟɪᴇꜱ!
 <div align="center">
   
 -[ᴇᴍᴇʀʏ](https://github.com/timekeeps) ⚚ [ǫᴜᴀꜱᴏ](https://github.com/Quaso0) ⚚ [ᴍɪᴀ](https://github.com/vloggun) ⚚ [ᴀʀꜱᴏɴ](https://github.com/arsonbringer) ⚚ [ᴀᴢᴜʀᴇ](https://github.com/thestarsarewatching) ⚚ [ᴛᴀꜰꜰʏ](https://github.com/LaffyTaffy-0)-
