@@ -6,7 +6,7 @@
 
 ![image_alt](https://github.com/DearMeii/Dearmeii/blob/main/blinkiesCafe-gZ.gif?raw=true)
 
- [straw](https://dearmei11.straw.page) ⚚ [atabook](https://dearmeii.atabook.org/) ⚚ [insta](https://www.instagram.com/dearmeii1/) 
+ [ꜱᴛʀᴀᴡ](https://dearmei11.straw.page) ⚚ [ᴀᴛᴀ](https://dearmeii.atabook.org/) ⚚ [ɪɴꜱᴛᴀ](https://www.instagram.com/dearmeii1/) ⚚ [ɪɴꜰᴏ-ʙʏɪ](https://fluffle.cc/dearmeii)
 
 <div align="center"> 
 
