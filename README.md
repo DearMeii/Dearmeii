@@ -26,12 +26,11 @@
 
 </details>
 
-<br>
-
 <details>
 <summary>wife</summary>
-
   <br>
-[ᴄᴀʟɪɪ](
+<div align="center">
+
+[ᴄᴀʟɪɪ <3 ](https://github.com/cauliflowrr)
 
 </details>
