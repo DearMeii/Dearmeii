@@ -1,7 +1,7 @@
 <div align="center">
 
 <br>
-  
+ 
 ![image alt](https://github.com/DearMeii/Dearmeii/blob/main/Untitled885_20260712153609.png?raw=true) 
 
 ![image_alt](https://github.com/DearMeii/Dearmeii/blob/main/blinkiesCafe-gZ.gif?raw=true)
@@ -19,11 +19,11 @@
   <br>
 <div align="center">
 
-##### ᴡɪꜰᴇ  [ᴄᴀʟɪɪ <3 ](https://github.com/cauliflowrr)
+###### ᴡɪꜰᴇ  [ᴄᴀʟɪɪ <3 ](https://github.com/cauliflowrr)
 
-##### ʟᴏᴠᴇʟʏ ᴏᴏᴍꜰꜱ  [ᴇᴍᴇʀʏ](https://github.com/timekeeps) ⚚ [ǫᴜᴀꜱᴏ](https://github.com/Quaso0) ⚚ [ᴍɪᴀ](https://github.com/vloggun) ⚚ [ᴀʀꜱᴏɴ](https://github.com/arsonbringer) ⚚ [ᴀᴢᴜʀᴇ](https://github.com/thestarsarewatching) ⚚ [ᴛᴀꜰꜰʏ](https://github.com/LaffyTaffy-0)
+###### ʟᴏᴠᴇʟʏ ᴏᴏᴍꜰꜱ  [ᴇᴍᴇʀʏ](https://github.com/timekeeps) ⚚ [ǫᴜᴀꜱᴏ](https://github.com/Quaso0) ⚚ [ᴍɪᴀ](https://github.com/vloggun) ⚚ [ᴀʀꜱᴏɴ](https://github.com/arsonbringer) ⚚ [ᴀᴢᴜʀᴇ](https://github.com/thestarsarewatching) ⚚ [ᴛᴀꜰꜰʏ](https://github.com/LaffyTaffy-0)
 
-##### ᴍʏ ᴅᴏᴏᴍᴇᴅ ᴘᴏʟʏᴄᴜʟᴇ [ᴊᴜɴᴇ](https://github.com/reiningcloud) ♡ [ᴋᴜɴɪ](https://github.com/constrz) ♡ [ʀᴀᴇ](https://github.com/THEFA1THFUL) ♡ [ꜰᴀʏɴᴇ](https://github.com/duxlucens) ♡ [ᴇʟʏ](https://github.com/DirectorWifies) + [xʏ](https://github.com/Navistel)
+###### ᴍʏ ᴅᴏᴏᴍᴇᴅ ᴘᴏʟʏᴄᴜʟᴇ [ᴊᴜɴᴇ](https://github.com/reiningcloud) ♡ [ᴋᴜɴɪ](https://github.com/constrz) ♡ [ʀᴀᴇ](https://github.com/THEFA1THFUL) ♡ [ꜰᴀʏɴᴇ](https://github.com/duxlucens) ♡ [ᴇʟʏ](https://github.com/DirectorWifies) + [xʏ](https://github.com/Navistel)
 
 </details>
 
