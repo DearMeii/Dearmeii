@@ -21,7 +21,7 @@
 
 ###### ᴡɪꜰᴇ!!!  [ᴄᴀʟɪɪ <3 ](https://github.com/cauliflowrr)
 
-###### ʟᴏᴠᴇʟʏ ᴏᴏᴍꜰꜱ  [ᴇᴍᴇʀʏ](https://github.com/timekeeps) ⚚ [ǫᴜᴀꜱᴏ](https://github.com/Quaso0) ⚚ [ᴍɪᴀ](https://github.com/vloggun) ⚚ [ᴀʀꜱᴏɴ](https://github.com/arsonbringer) ⚚ [ᴀᴢᴜʀᴇ](https://github.com/thestarsarewatching) ⚚ [ᴛᴀꜰꜰʏ](https://github.com/LaffyTaffy-0)
+###### ʟᴏᴠᴇʟʏ ᴏᴏᴍꜰꜱ  [ᴇᴍᴇʀʏ](https://github.com/timekeeps) ⚚ [ǫᴜᴀꜱᴏ](https://github.com/Quaso0) ⚚ [ᴍɪᴀ](https://github.com/vloggun) ⚚ [ᴀʀꜱᴏɴ](https://github.com/arsonbringer) ⚚ [ᴀᴢᴜʀᴀ](https://github.com/thestarsarewatching) ⚚ [ᴛᴀꜰꜰʏ](https://github.com/LaffyTaffy-0)
 
 ###### ᴍʏ ᴅᴏᴏᴍᴇᴅ ᴘᴏʟʏᴄᴜʟᴇ + ʀᴀɴᴅᴏᴍ ᴋɪᴅ [ᴊᴜɴᴇ](https://github.com/reiningcloud) ♡ [ᴋᴜɴɪ](https://github.com/constrz) ♡ [ʀᴀᴇ](https://github.com/THEFA1THFUL) + [xʏ](https://github.com/Navistel)
 
