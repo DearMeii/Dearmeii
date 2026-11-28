@@ -6,7 +6,7 @@
 
 ![image_alt](https://github.com/DearMeii/Dearmeii/blob/main/blinkiesCafe-gZ.gif?raw=true)
 
- ##### [ꜱᴛʀᴀᴡ](https://dearmei11.straw.page) ⚚ [ᴀᴛᴀ](https://dearmeii.atabook.org/) ⚚ [ɪɴꜱᴛᴀ](https://www.instagram.com/dearmeii1/) ⚚ [ɪɴꜰᴏ-ʙʏɪ](https://fluffle.cc/dearmeii)
+ ##### [ꜱᴛʀᴀᴡ](https://dearmei11.straw.page) ⚚ [ᴀᴛᴀ](https://dearmeii.atabook.org/) ⚚ [ɪɴꜱᴛᴀ](https://www.instagram.com/dearmeii1/) ⚚ [ɪɴꜰᴏ-ʙʏɪ](https://fluffle.cc/dearmeii) ⚚ [ᴅᴇᴄᴏ ᴍʏ ᴛʀᴇᴇ](https://decomytree.net/t/dZydyq)
 
 <div align="center"> 
 
